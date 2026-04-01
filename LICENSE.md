@@ -1,4 +1,4 @@
-
+adv escape tsunami Scripts | tele + fly is the ultimate solution for escape tsunami players! Our scripts provide tele and fly, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your escape tsunami experience today!
 
 
 ---
